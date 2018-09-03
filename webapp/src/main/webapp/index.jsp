@@ -1,13 +1,10 @@
 Poet's Work
 
-Grandfather   
-   advised me:
+    Grandfathe advised me:
          Learn a trade
 
-I learned
-   to sit at desk
+    I learned to sit at desk
          and condense
 
-No layoff
-   from this
+    No layoff from this
          condensery
